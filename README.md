@@ -17,13 +17,13 @@ These all are the platforms where you can find me:
   - [Medium](https://medium.com/@kxfein)
   - [Instagram](https://instagram.com/aichakoenc)
 
-### 🙇‍♀️ Well...
-Thank you for coming here, I hope you enjoy your stay!
+## 🙇‍♀️ Well...
+Thank you so much for coming here! Hope you enjoy your stay and if you're willing to, I can't wait to work together!
 
 
 xoxo, 
 
-Aisy💋
+Aisy😆
 
 <!---
 sinatraXX/sinatraXX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
