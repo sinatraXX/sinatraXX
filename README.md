@@ -5,6 +5,7 @@ Hereby I welcome you to the lair of my selected projects that I've made
 - 👋 Hi, I’m Aisyah Ramadhania (or some people prefer to call me Aisy or Aicha)
 - 👀 I have huge interests in Information Security, UI Designs, and also Internet Governance
 - 🌱 I’m currently a 5th semester student majoring in Cyber Security
+- 🏆 I'm also CEH v11 certified
 
 ### ♠️ Behind the Screen ♠️
 - During my free time, I love to explore game playtesting. I've engaged myself in several private betas and technical tests for a mouthful of PC games.
